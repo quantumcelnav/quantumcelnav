@@ -22,4 +22,4 @@ Currently building at the intersection of hardware, software, and RF.
 
 ## Contact
 
-Fort Collins, CO &nbsp;·&nbsp; [LinkedIn](https://www.linkedin.com/in/justin-fritz-engineer)
+Fort Collins, CO &nbsp;·&nbsp; [LinkedIn](https://www.linkedin.com/in/justinfritzee/)
